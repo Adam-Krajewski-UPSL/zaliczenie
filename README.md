@@ -1,1 +1,1 @@
-# zaliczenie
+Adam Krajewski
